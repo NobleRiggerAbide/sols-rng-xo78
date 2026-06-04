@@ -1,4 +1,4 @@
-#  
+#  Experience sol's rng like never before with top sol's rng Scripts, the #1 Script. Includes speed and no clip for unbeatable performance.
 
 
 
